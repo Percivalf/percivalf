@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://github.com/user-attachments/assets/0b7e042f-62b5-48fb-a0bd-06d43ac8c06a"/>
+<p align="center"> <img src="https://github.com/user-attachments/assets/ef2e46a1-2353-400b-8248-869dd9e6c9bc"/>
 
 <div align="center">
 i will finish this..eventually 🤸
@@ -6,3 +6,5 @@ i will finish this..eventually 🤸
 have this for now. . .
 <div align="center">
 https://guns.lol/percivalf
+
+<p align="center"> <img src="https://github.com/user-attachments/assets/4788392d-7a49-4396-a152-367ca441bf64"/>
